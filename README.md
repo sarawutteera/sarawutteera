@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sarawutteera
-- 👀 I’m interested in trading bot.
+- 👀 I’m interested in Bitcoin and trading bot.
 - 🌱 I’m currently learning a little.
 - 💞️ I’m looking to collaborate on no idea
 - 📫 How to reach me on ...On this.
